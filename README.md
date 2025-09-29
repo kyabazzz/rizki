@@ -1,2 +1,0 @@
-# rizki
-belajar
